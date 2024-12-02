@@ -2,6 +2,6 @@
 - 👀 I’m interested in: Old Technology, indie shows, among other things I will not name. 
 - 🌱 I’m currently learning: HTML, CSS, and Python3. 
 - 💞️ I’m looking to collaborate on: Old projects and some simple things. Nothing crazy for now.
-- 📫 How to reach me: Email me at jackgame281@outlook.com or dm me at Discord @jackgame281. You can also find me being rather unhinged on X with the same username. 
+- 📫 How to reach me: Dm me at Discord @jackgame281. You can also find me being rather unhinged on X with the same username. 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I shouldn't be given caffeine. 
